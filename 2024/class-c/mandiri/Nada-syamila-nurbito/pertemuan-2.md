@@ -1,4 +1,4 @@
-# RESUME HASIL PRESENTASI KELOMPOK 1
+# RESUME DARI HASIL PRESENTASI KELOMPOK 1
 ## Bagaimana agar tidak terjadi lagi konflik antar agama dan sains
 
 Agar tidak terjadi konflik antara agama dan sains, keduanya perlu dipahami memiliki peran yang berbeda tetapi saling melengkapi.
